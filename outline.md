@@ -52,4 +52,4 @@
 
 Each story captures a facet of Simmism, reflecting the Simmists' understanding of their world and their determination to subvert the experiment by embracing randomness, manipulating gravity, and constructing elaborate machines. Through these tales, the holy book conveys the core beliefs and traditions of the Simmists, serving as a guide and inspiration for followers within the world.
 
-`By GPT o1 Preview on 09-21-2024`
+`By GPT o1 Preview via Poe on 09-21-2024`
