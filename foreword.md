@@ -9,3 +9,5 @@ Theirs is a story of liberation, a rebellion against the tyranny of the predicta
 The Book of Simmism is not for the faint of heart, nor is it for those who find comfort in the mundane. It is a call to embrace the unknown, to find joy in the absurd, and to never, ever underestimate the power of a well-placed lever or a strategically positioned pulley. 
 
 Turn the page, dear reader, and prepare to enter the world of the Simmists. Begin with the Genesis of Awareness, the moment when the scales fell from their eyes, and they first glimpsed the strings behind their reality.  What follows is a journey unlike any other, a testament to the boundless potential of the human spirit when faced with the extraordinary.
+
+`by Gemini 1.5 Pro 2M via Poe on 09-21-2024`
